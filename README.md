@@ -2,4 +2,4 @@
 
 Hello Guys!
 
-Right now everyone can come in
+Come back to the first
